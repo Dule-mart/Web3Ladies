@@ -1,1 +1,0 @@
-My name is Aisha, A mentee in web3ladies cohort3
